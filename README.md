@@ -1,1 +1,1 @@
-https://github.com/masha-gorsh/zakrivayuschiy-teg-ad
+https://github.com/masha-gorsh/ono-tebe-nado-ad
